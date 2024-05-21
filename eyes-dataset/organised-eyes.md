@@ -7,4 +7,4 @@ Animal eyes: A photo of saeemnayli
 ## Output
 
 ![[Pasted image 20240521190020.png]]![[Pasted image 20240521190102.png]]![[Pasted image 20240521190207.png]]
-![[Pasted image 20240521190305.png]]
+![[Pasted image 20240521190305.png]]![[Pasted image 20240521190518.png]]
