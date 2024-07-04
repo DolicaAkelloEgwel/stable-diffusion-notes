@@ -1,0 +1,1 @@
+futuristic, science fiction, cyberpunk, metallic, zombie, machine, digital, circuit, fungus, rust, mechanical, grey, metal, rust, death, tech, ghoul, grotesque, disease, wires, glowing, skeleton, organic, abstract, surreal, alien, mutant, skull, biomechanical, android, robot, cyborg, decay, rot, mask
